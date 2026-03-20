@@ -1,2 +1,0 @@
-# ronaldo
-fdfh
